@@ -11,4 +11,4 @@
 8. Pimenta 
 9. Gergelim 
 10. Orégano
-11. Linhaća
+11. Linhaça
